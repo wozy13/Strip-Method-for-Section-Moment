@@ -1,0 +1,1 @@
+# Strip-Method-for-Section-Moment
